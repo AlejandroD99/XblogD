@@ -8,3 +8,5 @@
 PDTA: Este READ.ME es un chiste, no te vayas a poner a llorar por lo que te acabo de decir.
 Ah, tambien hay una imagen de un Gato Hot xd
 Att: Tu Mamá
+
+Si, esto esta creado por tu Mamá
